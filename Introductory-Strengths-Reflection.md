@@ -4,15 +4,29 @@
 **Read through the definitions**:
 
 1. What words or phrases stick out to you for each theme?
-    **Input:** Inquisitive, potential future value of information
-    **Learner:** Process of learning, getting there
-    **Maximizer:** Excellence
-    **Relator:** Close friends
-    **Analytical** Challenging, objective
-    
 
+   **Input:** Inquisitive, data acquired and stored away (for potential future value), finds so many things interesting
+   
+   **Learner:** Process of learning (more than the content or result), getting there, thriving when learning a lot in a short time
+
+   **Maximizer:** Excellence, compelled to nurture strenghts of others, discriminating, don't want to spend your life bemoaning shortcomings
+
+   **Relator:** Being around close friends
+
+   **Analytical** Challenging other people, objective, rigorous, search for patterns and connections
+    
 2. How would you define each of your top 5 talents in your own words?
 
+   **Input:** I have many interests and enjoy learning as much as possible in these interests, sometimes to the point of obsession.
+   
+   **Learner:** I enjoy learning things for the sake of learning.
+
+   **Maximizer:** Rather than improving my weaknesses, I prefer to maximize my strengths.
+
+   **Relator:** I am most comfortable around those with whom I am very close. I don't have as many acquiantances as most, but I cherish the relationships I have.  
+
+   **Analytical** I am a logical person motivated primarily by my own curiosity.  I like to get to the bottom of things and seek out factual evidence.
+    
 3. Do these top 5 talent themes resonate with you? Why or why not? 
 
 *Now, go find partners to introduce yourself to using these 5 areas*
